@@ -13,4 +13,4 @@
 ![](https://github-profile-trophy.vercel.app/?username=Cosmic-SC&theme=juicyfresh&no-frame=true&no-bg=false&margin-w=4)
 
 ---
-[![](https://visitcount.itsvg.in/api?id=Cosmic-SC&label=Profile%20Views&color=1&icon=8&pretty=true)](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+[![](https://visitcount.itsvg.in/api?id=Cosmic-SC&label=Profile%20Views&color=1&icon=8&pretty=true)](https://visitcount.itsvg.in)
